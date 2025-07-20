@@ -64,5 +64,5 @@ Business is my tool. Humanity is my mission.
 ## 📫 Contact
 
 - Twitter/X: [@ryuzokijima](https://x.com/ryuzokijima)  
-- Website (soon): `coming soon...`  
+- Website: [ryuzo.me](https://ryuzo.me)  
 - Always open to conversation, collaboration, and coffee in SF ☕
